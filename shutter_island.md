@@ -1,2 +1,3 @@
 # Shutter Island
 
+Shutter Island sigue al agente Teddy Daniels, quien investiga la desaparición de una paciente en un hospital psiquiátrico en una isla remota. A medida que la investigación avanza, Teddy descubre secretos perturbadores sobre el hospital, los pacientes, y su propio pasado, mientras lucha con la duda sobre lo que es real y lo que no. Finalmente, Teddy se da cuenta de que él mismo es un paciente, y toda la investigación fue una puesta en escena para enfrentar su propia negación de la verdad: fue internado tras asesinar a su esposa, quien había matado a sus hijos.
