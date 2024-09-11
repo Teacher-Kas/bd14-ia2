@@ -1,1 +1,0 @@
-# La Vita e Bella
