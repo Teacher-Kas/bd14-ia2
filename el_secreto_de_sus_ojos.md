@@ -1,0 +1,5 @@
+La historia comienza en Buenos Aires, en 1974, donde conocemos a Benjamín Espósito, un exsecretario judicial que acaba de jubilarse y decide escribir una novela basada en un caso de asesinato sin resolver que investigó hace 25 años. El caso en cuestión se trata del brutal asesinato de una joven llamada Liliana Coloto.
+
+Benjamín entrevista a Ricardo Morales, el esposo de Liliana, quien continúa destrozado por la pérdida de su esposa y por el hecho de que el crimen nunca fue resuelto. A medida que Benjamín profundiza en su investigación, descubre detalles escalofriantes y se da cuenta de que el caso todavía tiene muchas preguntas sin respuestas.
+
+En su búsqueda de la verdad, Benjamín se enfrenta a obstáculos y peligros. Se cruza con el corrupto oficial de policía Isidoro Gómez, quien está más interesado en cubrir sus propias fechorías que en ayudar a resolver el caso. También se encuentra con Irene Menéndez-Hastings, su antigua compañera de trabajo y amor imposible. La relación entre Benjamín e Irene es compleja, ya que tienen sentimientos el uno por el otro pero nunca logran estar juntos debido a las circunstancias y a la vida que cada uno ha elegido llevar.
