@@ -1,0 +1,3 @@
+# La Vita e Bella
+
+In 1930s Italy, a carefree Jewish waiter-turned-bookseller named Guido starts a fairy tale life by courting and marrying a lovely woman teacher named Dora. Guido and Dora have a son named Joshua and live happily together until the forced deportation of the town's Jewish population in cattle cars. Dora, while not required to be deported, volunteers to leave with her family, and they are all forced to live in a concentration camp. In an attempt to hold his family together and help his son survive the horrors of a concentration camp, Guido imagines that the Holocaust is a game and that the grand prize for winning is a tank.
